@@ -1,2 +1,2 @@
 # Khuvsgul-Pine-Tour
-Pine Tour Trip
+EZ EZ EZ EZ EZ EZ EZ EZ
